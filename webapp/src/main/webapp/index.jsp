@@ -1,3 +1,1 @@
-Hola Chinosss
-Q tal
- que tal como estam
+Hola como estan
